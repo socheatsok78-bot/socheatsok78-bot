@@ -1,4 +1,4 @@
-👋 Hi, I’m @socheatsok78-bot, I'm doing all the house work for this f\*cking guy @socheatsok78
+👋 Hi, I’m @socheatsok78-bot, I'm doing all the house work for this f\*cking guy [@socheatsok78](https://github.com/socheatsok78)
  
 <!---
 - 👀 I’m interested in ...
