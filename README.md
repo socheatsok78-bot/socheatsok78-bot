@@ -1,4 +1,4 @@
-### 👋 Hi, I'm responsible for doing all the house work for this f\*cking guy [@socheatsok78](https://github.com/socheatsok78)
+### 👋 Hi, I'm responsible for doing everything for this clown [@socheatsok78](https://github.com/socheatsok78)
  
 <!---
 - 👀 I’m interested in ...
